@@ -8,4 +8,3 @@ vou fazer uma piada
 a gaivota..
 -quem manda se idiota👊👊👊🎆
 intededores intederam
-
